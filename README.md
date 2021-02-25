@@ -1,5 +1,5 @@
 ### :wave: Hi there, my name is Ignacio! ("Nacho" for my friends! :grin:)
-           /./././.Also known like DDRRAKKENN/./././ :muscle:
+           /./././.Also known like DDRRAKKENN/./././ 👍
 
 - 🔭 Working on Angular, React, HTML, CSS, Javascript, Node and others!!! (Psstt...Dont tell anybody, but Im tryng to be a better Fullstack Developer...)
 - 🌱 I’m currently learning Angular and trying to be a better Data Scientist! (I know, I'm a crazy man right?)
