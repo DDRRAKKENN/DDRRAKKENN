@@ -2,7 +2,7 @@
 
            /./././.Also known like DDRRAKKENN/./././ 👍
 
-- 📡 Data Science Professional....or trying to be a good one! 😜
+- 📡 Cloud Solutions Architect | AWS & AI/ML Engineering | Digital Transformation Leader....or trying to be a good one! 😜
 - 🔭 some badges here! (yes, I get bored very easy!) -> https://www.credly.com/users/jorge-ignacio-lara-ceballos/badges
 - 👯 I like to collaborate on every people who wants to know more in this informatic world!!!
 - 📫 How to find me: https://www.linkedin.com/in/jorge-ignacio-lara-ceballos/
